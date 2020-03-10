@@ -1,7 +1,3 @@
 # repos
 # changes
-
-yfytfhgiugy\
-hkj
-dfgdgdg
-df
+welcome home
